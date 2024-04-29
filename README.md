@@ -1,1 +1,1 @@
-# YOUCANSUCKMYDICKIFYOULIKEIT.github.io
+# YOUCAN.github.io
